@@ -2,7 +2,7 @@
 
 Morning wakes in a pale, soft hush,
 the river slips through reeds and rush.
-A sparrow tilts on a swaying line,
+A swallow tilts on a swaying line,
 and the day unfolds, mine and not mine.
 
 I carry a name the wind forgets,
