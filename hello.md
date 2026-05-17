@@ -1,11 +1,11 @@
 # Hello
 
-A quiet hello at the edge of the day,
-where the light leans low and the shadows stray.
-The kettle hums a familiar tune,
-and a paper moon climbs into June.
+Morning wakes in a pale, soft hush,
+the river slips through reeds and rush.
+A sparrow tilts on a swaying line,
+and the day unfolds, mine and not mine.
 
-Small things gather: a cup, a chair,
-the soft surprise of a breath of air.
-Outside, the world keeps turning on —
-hello, old friend. The night is gone.
+I carry a name the wind forgets,
+a pocketful of small regrets,
+but here, where the light begins to bloom,
+hello is a word that makes more room.
