@@ -1,0 +1,6 @@
+__pycache__/
+*.pyc
+
+# Generated menu artifacts
+menu.json
+menu.html
